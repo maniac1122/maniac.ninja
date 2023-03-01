@@ -1,0 +1,1 @@
+goblin wizard ghoul troll elf 
