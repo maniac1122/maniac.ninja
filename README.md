@@ -1,2 +1,0 @@
-# maniac.ninja
-maniac.ninja
